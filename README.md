@@ -1,1 +1,1 @@
-https://github.com/PALAKURTHYVAMSHI/profile.jpg/blob/b5cf4df0a4e83dcdca793ecbd484a742d9bad25f/1763566461971.jpg# profile.jpg
+https://github.com/PALAKURTHYVAMSHI/profile.jpg/blob/ad1bf6c0e1702b5226d811d3e591521120396852/WhatsApp%20Image%202025-11-26%20at%2023.58.30_553975ef.jpghttps://github.com/PALAKURTHYVAMSHI/profile.jpg/blob/b5cf4df0a4e83dcdca793ecbd484a742d9bad25f/1763566461971.jpg# profile.jpg
